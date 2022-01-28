@@ -20,4 +20,4 @@ I am also passionate about creating reproducible, re-executable neuroimaging pip
 
 The third piece of my research area, also my long-standing curiosity, is morality. I used movies to explore how moral components in narratives impact the engagement the audience and found that their brains synchronized more when immoral characters were punished. Along the side, I am intrigued by and working on how media content impacts public opinion about moral topics.
 
-Here is my **CV**. Drop me a line on Twitter (@yibeichan) or shoot me an email if you are interested.
+Here is my **[CV](https://drive.google.com/file/d/10zhlQZSORYYF0TfvvyDvWMWpw8Eticpt/view?usp=sharing)**. Drop me a line on [Twitter](https://twitter.com/yibeichan) or shoot me an email if you want to chat.
